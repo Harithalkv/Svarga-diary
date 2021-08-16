@@ -1,1 +1,1 @@
-# Svarga-diary
+# Svarga-dairy
